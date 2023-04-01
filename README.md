@@ -1,1 +1,0 @@
-# masanaosan.github.io
